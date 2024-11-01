@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DevonteAls2024
 - 👀 I’m interested in all things environmental and philosophy
-- 🌱 I’m currently learning how to utilize blender
+- 🌱 I’m currently learning how to utilize blender for passion projects
 - 💞️ I’m looking to collaborate on all things AI
 - 📫 How to reach me devonte.als@cynatglobal.com
 - 😄 Pronouns: He/Him
